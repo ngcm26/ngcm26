@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi 👋, i'm Minh<br><br>Currently a Final Year Student at Nanyang Polytechnic, Pursuing a Diploma in Business & Financial Technology.<br>My Personal and School Projects are Posted here.<br><br>👨‍💻 My Digital Portfolio | https://ngocminhle.com<br><br>📫 How to reach me | ngcm2611@gmail.com
+Hi 👋, I'm Minh<br><br>Currently a Final Year Student at Nanyang Polytechnic, Pursuing a Diploma in Business & Financial Technology.<br>My Personal and School Projects are Posted here.<br><br>👨‍💻 My Digital Portfolio | https://ngocminhle.com<br><br>📫 How to reach me | ngcm2611@gmail.com
 
 
 ## 🌐 Socials:
